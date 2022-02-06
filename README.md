@@ -1,6 +1,6 @@
 - 👋 Hi, We're Axtra Dose Studio
 - 📍 We are a Web Experiences Agency, based out of Bhubaneswar, India.
-- ✨ "It's not just another website, it's an experience for your customer" - We make sure it is nice ❤
+- ✨ "It's not just another Website, it's an Experience for your customer" - We make sure it's Memorable ❤
 - 💼 We make
       ⭐ Landing Pages
       ⭐ Business Websites
